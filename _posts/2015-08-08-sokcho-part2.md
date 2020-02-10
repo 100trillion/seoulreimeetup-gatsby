@@ -33,13 +33,13 @@ As we drive to Property #2, we can see right away that one of its big desirabili
 
 ![ From the rooftop of Property #2. Prices may go up or down, but ocean views will never change. ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453564583572-DYWTCLPK4WOGHSKB164S/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">From the rooftop of Property #2. Prices may go up or down, but ocean views will never change.</figcaption></figure>
 
-Of course, finding a desirable property is only part of the process. There are countless, beautiful, desirable properties located throughout Korea and the world. As a real estate entrepreneur, you need to go one step further; you need to buy these desirable properties at a discount to what they’re &#8220;worth.&#8221;
+Of course, finding a desirable property is only part of the process. There are countless, beautiful, desirable properties located throughout Korea and the world. As a real estate entrepreneur, you need to go one step further; you need to buy these desirable properties at a discount to what they’re  "worth. "
 
 You saw with [Property #1](http://seoulreimeetup.com/korea/sokcho-part1) how our Sokcho Investors were able to more than double their 3,000,000 won initial investment right from the outset of their purchase.
 
 A property is only valuable to a real estate investor if it’s selling at the right price. A really nice home selling for an exorbitant amount might be fine for the homeowner who’s blinded by thoughts of raising kids there and showing off a new bbq grill. But for a real estate entrepreneur, whose goal is to make money, and more importantly, not lose money, price is all important.
 
-The difference between what you pay for a property and what a property is worth is what Warren Buffett would call your &#8220;margin of safety.&#8221;
+The difference between what you pay for a property and what a property is worth is what Warren Buffett would call your  "margin of safety. "
 
 Every investment you buy should come with an adequate margin of safety that takes into consideration:
 

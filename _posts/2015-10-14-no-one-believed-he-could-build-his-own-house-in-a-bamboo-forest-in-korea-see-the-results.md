@@ -22,7 +22,7 @@ One of the best investments you can make as a real estate investor is in strengt
 
 What we have going on out here is so unique that I want to give as many people the opportunity to join us as possible. I know how hard it was to get started investing on my own (and I had a partner too!) and how much easier it has been now that I have a great network of supporters, motivators, teachers, and learners.
 
-Our random post on Reddit helped us connect with yet another real estate investor who is investing in Korea, Sean Walker. According to [his website](http://www.thedamyanghouse.com/p/blog-page_19.html), &#8220;He is currently a Visiting Professor in the English Education Department at Chonnam National University.&#8221;
+Our random post on Reddit helped us connect with yet another real estate investor who is investing in Korea, Sean Walker. According to [his website](http://www.thedamyanghouse.com/p/blog-page_19.html),  "He is currently a Visiting Professor in the English Education Department at Chonnam National University. "
 
 Sean was kind enough to share his real estate adventures in Korea on a Reddit post. His journey began several years ago when he and his wife decided to buy their own land and build a house in a bamboo forest. Sounds like the start of a great movie, right? Of course, they faced countless naysayers who said it couldn’t be done, and Sean will be the first to admit that it wasn’t exactly a smooth ride.
 
@@ -34,4 +34,4 @@ Of course, the journey is a lot easier when you have people to share it with –
 
 Come join us on <a target="_blank" href="http://www.meetup.com/Seoul-REI-Meetup/events/225572865/" rel="noopener noreferrer">Saturday, October 17, from 1 to 3 PM at TOZ Gangnam</a>.
 
-Don’t let that beautiful, unique dream of yours fade away. As a wise man once said, &#8220;You’ll never regret the dreams you went for and didn’t quite reach. Only the ones you never tried.&#8221;
+Don’t let that beautiful, unique dream of yours fade away. As a wise man once said,  "You’ll never regret the dreams you went for and didn’t quite reach. Only the ones you never tried. "

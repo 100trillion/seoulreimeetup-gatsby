@@ -1,4 +1,4 @@
-–---
+–--
 id: 20
 title: How to buy an apartment in Korea for $5,000
 date: 2015-07-12T07:41:58+00:00
@@ -18,15 +18,6 @@ tags:
 In this article, I want to tell you about a strategy to buy Korean real estate for very little money out-of-pocket. And just so you know, this is not a strategy that I profit from in any way (nor endorse). I’m just sharing knowledge that I learned from another member of the Seoul Real Estate Investing Meetup. As with any investment strategy, make sure you do your own due diligence and are following all local laws. And yes, this strategy can also be used by non-Koreans.
 
 Okay, now that I’ve gotten that out of the way, let’s start by defining traditional financing.
-
-
-<ins class="adsbygoogle"
-     style="display:block; text-align:center;"
-     data-ad-layout="in-article"
-     data-ad-format="fluid"
-     data-ad-client="ca-pub-9622762641247774"
-     data-ad-slot="7161099219"></ins>  
-
 
 ## Traditional financing
 
@@ -48,7 +39,7 @@ Enter creative financing.
 
 Creative financing is a broad term that refers to different ways of finding the money needed to buy a house when you can’t get a bank loan (or don’t want to) for some reason.
 
-One example of creative financing might be _seller financing_. In a seller finance deal, you basically promise to pay the seller a set amount over a certain number of years until the property is paid for. The seller acts as the &#8220;bank&#8221; in other words.
+One example of creative financing might be _seller financing_. In a seller finance deal, you basically promise to pay the seller a set amount over a certain number of years until the property is paid for. The seller acts as the "bank" in other words.
 
 One advantage of seller financing is that you and the seller can negotiate directly and can set whatever terms you want.
 
@@ -90,7 +81,7 @@ You now own the apartment. You basically borrowed the money for the purchase fro
 
 Okay, so you might be thinking:
 
-> &#8220;So what? You spent $50,000 for an apartment, which is a great deal, but you’re not making any money from the apartment. And you’re also indebted by $45,000. That doesn’t sound that great.&#8221;
+>  "So what? You spent $50,000 for an apartment, which is a great deal, but you’re not making any money from the apartment. And you’re also indebted by $45,000. That doesn’t sound that great. "
 
 Good points. And here’s where you have to do your due diligence ahead of time and make sure you’re employing this strategy in the right neighborhood.
 
@@ -122,6 +113,6 @@ Here are some factors you’ll need to employ this strategy:
 
 This is just one creative investing strategy that I learned about by attending our events. As I mentioned before, I’ve never used this strategy, and you should do your own due diligence to ensure you’re complying with all the local laws and also consult with a real estate agent to hear more about the risks involved.
 
-But as an investor, I love hearing about creative ways to do deals. Not only are you acquiring properties that can give you great returns, but you’re also helping to solve problems &#8211; you’re helping an owner sell a property the owner no longer wants, and you’re able to provide jeonse housing for tenants who want it.
+But as an investor, I love hearing about creative ways to do deals. Not only are you acquiring properties that can give you great returns, but you’re also helping to solve problems – you’re helping an owner sell a property the owner no longer wants, and you’re able to provide jeonse housing for tenants who want it.
 
 Check out the [Part 1 of the _Sokcho real estate investing series_](/blog/sokcho-part1) to learn more about this unique strategy.

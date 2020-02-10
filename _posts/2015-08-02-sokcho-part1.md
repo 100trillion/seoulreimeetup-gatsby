@@ -54,7 +54,7 @@ Additionally, a CGV is being built right behind the main street.<figure style="w
 
 ![ Site of future CGV ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453799340694-MDCNWAN9VLLKSZQ8ZFZI/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">Site of future CGV</figcaption></figure>
 
-Buying a commercial building (a whole building) in this district might seem like a daunting task. But our investors were able to do it with the help of their real estate agent who held this property as a &#8220;pocket listing&#8221; – a property that hasn’t been officially listed yet. Their real estate agents called them first, as the investors have a reputation for being able to close on a property.
+Buying a commercial building (a whole building) in this district might seem like a daunting task. But our investors were able to do it with the help of their real estate agent who held this property as a  "pocket listing " – a property that hasn’t been officially listed yet. Their real estate agents called them first, as the investors have a reputation for being able to close on a property.
 
 The building they bought is a two-story property zoned for both residential and retail. It’s located at the beginning of Rodeo Drive. It has a rooftop with a view of the ocean.
 
@@ -68,11 +68,11 @@ Blink and you’ll miss it!  But this property’s desirability lies in its loca
 
 So how much did our investors pay for this building? Here’s where things get interesting and creative.
 
-The initial price was 45,000,000 won (although the investors valued it at more than 50,000,000 won at the time of purchase). It was a &#8220;quick sale,&#8221; meaning the owner wanted to find a buyer fast. After some negotiations, our investors were able to drop the price to 33,000,000 won.
+The initial price was 45,000,000 won (although the investors valued it at more than 50,000,000 won at the time of purchase). It was a  "quick sale, " meaning the owner wanted to find a buyer fast. After some negotiations, our investors were able to drop the price to 33,000,000 won.
 
 Given the location of this property, the price seemed to be a steal. But the deal got even better. Our investors were able to market the building to a new tenant _before the sale_ and found a jeonse tenant willing to put down 30,000,000 won to live in the space for two years. This money was given over to the seller, and our investors only had to pay the remaining 3,000,000 won to take control of this property.
 
-The easiest way to picture what has happened is to imagine that the tenants gave them an interest-free &#8220;loan&#8221; to purchase the building. The investors, of course, are still responsible to repay that money to the tenants when they move out.
+The easiest way to picture what has happened is to imagine that the tenants gave them an interest-free  "loan " to purchase the building. The investors, of course, are still responsible to repay that money to the tenants when they move out.
 
 I know you have questions:
 

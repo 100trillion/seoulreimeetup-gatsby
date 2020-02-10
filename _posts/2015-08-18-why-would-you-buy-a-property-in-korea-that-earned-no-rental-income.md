@@ -41,7 +41,7 @@ So, let’s say you’re able to find a discounted property in a steady market (
 
 The owner wants $150,000. You know tenants are willing to put around $95,000 in jeonse to live in the area, rent free. You’re able to negotiate down to $100,000 (based on example in [this article](http://seoulreimeetup.com/korea/sokcho-part2)).
 
-Once you have an agreement, you put down earnest money of $5,000. You market the property for a tenant and find someone who agrees to the $95,000 jeonse. You schedule a &#8220;double closing&#8221; in which the tenant moves in on the same day you take possession of the property. The $95,000 in jeonse from the tenant and the $5,000 you put down as a deposit goes to the owner. The owner gets his or her $100,000. The tenant gets a place to live. You now own the unit.
+Once you have an agreement, you put down earnest money of $5,000. You market the property for a tenant and find someone who agrees to the $95,000 jeonse. You schedule a  "double closing " in which the tenant moves in on the same day you take possession of the property. The $95,000 in jeonse from the tenant and the $5,000 you put down as a deposit goes to the owner. The owner gets his or her $100,000. The tenant gets a place to live. You now own the unit.
 
 You have, in essence, received a 0% interest loan from your tenant.
 
@@ -64,7 +64,7 @@ The new tenant moves into the property, and you pocket the difference a differen
 
 You pay yourself back $5,000, and you have a $5,000 profit left over.
 
-So, in two years, you’ve doubled the money you paid to &#8220;purchase&#8221; this property.
+So, in two years, you’ve doubled the money you paid to  "purchase " this property.
 
 > What if the market doesn’t go up? What if there’s a downturn?
 

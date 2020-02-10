@@ -24,7 +24,7 @@ During their presentation, Jacob and Victoria explained how they’ve been able 
 
 ## WHAT IS JEONSE?
 
-_Jeonse_ (전세) is a tenancy agreement in which the tenant pays the landlord a refundable deposit–jeonse–of approximately two-thirds of the property’s market value in order to live in that property &#8220;rent-free&#8221; for at least two years. This kind of tenancy agreement is unique to Korea.
+_Jeonse_ (전세) is a tenancy agreement in which the tenant pays the landlord a refundable deposit–jeonse–of approximately two-thirds of the property’s market value in order to live in that property  "rent-free " for at least two years. This kind of tenancy agreement is unique to Korea.
 
 ## WHAT IS THE JEONSE STRATEGY?
 
