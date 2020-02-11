@@ -18,7 +18,7 @@ In fact, the investors in question chose to invest in Sokcho because of what the
 
 As we drive to Property #2, we can see right away that one of its big desirability factors are its clear, unobstructed ocean views.<figure style="width: 360px" class="wp-caption alignnone">
 
-![ From the rooftop of Property #2. Prices may go up or down, but ocean views will never change. ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453564583572-DYWTCLPK4WOGHSKB164S/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">From the rooftop of Property #2. Prices may go up or down, but ocean views will never change.</figcaption></figure>
+![ From the rooftop of Property #2. Prices may go up or down, but ocean views will never change. ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453564583572-DYWTCLPK4WOGHSKB164S/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original)
 
 Of course, finding a desirable property is only part of the process. There are countless, beautiful, desirable properties located throughout Korea and the world. As a real estate entrepreneur, you need to go one step further; you need to buy these desirable properties at a discount to what they’re  "worth. "
 
