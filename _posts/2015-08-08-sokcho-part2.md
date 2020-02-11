@@ -1,21 +1,8 @@
 ---
-id: 16
+layout: post
 title: 'Sokcho real estate investing – Part 2: An oceanview apartment for $10,000'
 date: 2015-08-08T07:13:49+00:00
 author: Dan Ryu
-excerpt: |
-  <p>Welcome to Part 2 of our series on investing in Sokcho. If you missed Part 1, click <a href="http://seoulreimeetup.com/korea/sokcho-part1">here</a>. The series follows a group of Seoul Real Estate Investing Meetup members' whirlwind 19-hour day as they traveled to Sokcho to check out the properties of two of our investors and explore a unique Korea-focused <a href="http://seoulreimeetup.com/korea/how-to-buy-an-apartment-in-korea-for-5000">real estate buying strategy using jeonse</a>.</p>
-layout: post
-guid: http://localhost:8888/seoulreimeetup/2015/08/08/sokcho-part2/
-permalink: /2015/08/08/sokcho-part2/
-categories:
-  - creative financing
-  - jeonse
-  - Korea
-  - real estate
-  - Sokcho
-tags:
-  - Seoraksan
 ---
 > Welcome to Part 2 of our series on investing in Sokcho. If you missed Part 1, click [here](http://seoulreimeetup.com/korea/sokcho-part1). The series follows a group of Seoul Real Estate Investing Meetup members’ whirlwind 19-hour day as they traveled to Sokcho to check out the properties of two of our investors and explore a unique Korea-focused [real estate buying strategy using jeonse](http://seoulreimeetup.com/korea/how-to-buy-an-apartment-in-korea-for-5000).
 

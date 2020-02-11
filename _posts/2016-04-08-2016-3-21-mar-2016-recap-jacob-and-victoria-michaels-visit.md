@@ -1,20 +1,8 @@
 ---
-id: 10
+layout: post
 title: 'Mar 2016 recap – Jacob and Victoria Michaels visit'
 date: 2016-04-08T02:10:19+00:00
 author: Jean-Luc Leese
-excerpt: "<p>On March 19, the Seoul Real Estate Investing Meetup invited husband-and-wife team Jacob and Victoria Michaels to talk about their unique real estate investment strategy. During the presentation, Jacob and Victoria explained how they've been able to use the jeonse system to acquire a number of properties in Sokcho and, more recently, Hongdae in Seoul.</p>"
-layout: post
-guid: http://localhost:8888/seoulreimeetup/2016/04/08/2016-3-21-mar-2016-recap-jacob-and-victoria-michaels-visit/
-permalink: /2016/04/08/2016-3-21-mar-2016-recap-jacob-and-victoria-michaels-visit/
-categories:
-  - creative financing
-  - jeonse
-  - Korea
-  - real estate
-tags:
-  - Jacob Michaels
-  - Victoria Michaels
 ---
 On March 19, the Seoul Real Estate Investing Meetup invited husband-and-wife team Jacob and Victoria Michaels to talk about their unique real estate investment strategy.<figure style="width: 2048px" class="wp-caption alignnone">
 

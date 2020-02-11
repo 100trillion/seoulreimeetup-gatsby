@@ -1,26 +1,8 @@
 ---
-id: 11
+layout: post
 title: 'Feb 2016 recap – Nikola Medimorec, co-author of Kojects, visits'
 date: 2016-02-23T12:50:59+00:00
 author: Jean-Luc Leese
-excerpt: '<p>On February 20, the Seoul Real Estate Investing Meetup invited <a target="_blank" href="http://kojects.com/" rel="noopener noreferrer">Kojects</a> co-author Nikola Medimorec to give a lecture on urban development in Seoul.</p><p>The lecture, which was held at <a target="_blank" href="http://10k.asia/places_korea/" rel="noopener noreferrer">10K City Hall</a> near Seoul Plaza and Seoul City Hall, was attended by an eclectic audience of more than 40 people interested in real estate investment as well as a Korea Times reporter. We were also joined by 777 Periscope viewers as they tuned in to a live broadcast of the event.</p>'
-layout: post
-guid: http://localhost:8888/seoulreimeetup/2016/02/23/2016-2-10-feb-2015-recap-nikola-medimorec-founder-of-kojects-visits/
-permalink: /2016/02/23/2016-2-10-feb-2015-recap-nikola-medimorec-founder-of-kojects-visits/
-categories:
-  - Korea
-  - meetup recap
-  - real estate
-  - urban development
-tags:
-  - 10K City Hall
-  - creative financing
-  - Jacob Michaels
-  - Jeff Yu
-  - jeonse
-  - Kojects
-  - Nikola Medimorec
-  - Victoria Michaels
 ---
 On February 20, the Seoul Real Estate Investing Meetup invited <a target="_blank" href="http://kojects.com/" rel="noopener noreferrer">Kojects</a> co-author Nikola Medimorec to give a lecture on urban development in Seoul.<figure style="width: 771px" class="wp-caption alignnone">
 

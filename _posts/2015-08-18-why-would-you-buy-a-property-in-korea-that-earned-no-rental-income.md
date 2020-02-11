@@ -1,22 +1,8 @@
 ---
-id: 14
+layout: post
 title: Why would you buy a property in Korea that earned no rental income?
 date: 2015-08-18T02:45:22+00:00
 author: Dan Ryu
-excerpt: "<p>There might be many reasons why someone buys a property that produces no monthly income. Maybe it's a tax shelter or maybe it's a speculation play. Here's a response I wrote to a reader recently on why the jeonse strategy discussed in these articles can be a real winner, despite receiving no rental income.</p>"
-layout: post
-guid: http://localhost:8888/seoulreimeetup/2015/08/18/why-would-you-buy-a-property-in-korea-that-earned-no-rental-income/
-permalink: /2015/08/18/why-would-you-buy-a-property-in-korea-that-earned-no-rental-income/
-structured_content:
-  - '{"oembed":{},"overlay":true}'
-categories:
-  - creative financing
-  - jeonse
-  - Korea
-  - real estate
-tags:
-  - key money
-  - tenant
 ---
 There might be many reasons why someone buys a property that produces no monthly income. Maybe it’s a tax shelter or maybe it’s a speculation play. Here’s a response I wrote to a reader recently on why the jeonse strategy discussed in these articles can be a real winner, despite receiving no rental income.
 

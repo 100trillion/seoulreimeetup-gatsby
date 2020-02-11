@@ -1,25 +1,8 @@
 ---
-id: 12
+layout: post
 title: 'Sokcho real estate investing – Part 3: Why Sokcho?'
 date: 2015-09-02T14:44:13+00:00
 author: Dan Ryu
-excerpt: |
-  <p>Welcome to Part 3 of our series on investing in Sokcho. If you missed Part 2, click <a href="http://seoulreimeetup.com/korea/sokcho-part2">here</a>. For Part 1, click <a href="http://seoulreimeetup.com/korea/sokcho-part1">here</a>. The series follows a group of Seoul Real Estate Investing Meetup members' whirlwind 19-hour day as they traveled to Sokcho to check out the properties of two of our investors and explore a unique Korea-focused real estate buying strategy using jeonse.</p>
-layout: post
-guid: http://localhost:8888/seoulreimeetup/2015/09/02/sokcho-real-estate-investing-part-3-why-sokcho/
-permalink: /2015/09/02/sokcho-real-estate-investing-part-3-why-sokcho/
-structured_content:
-  - '{"oembed":{},"overlay":true}'
-categories:
-  - creative financing
-  - jeonse
-  - Korea
-  - real estate
-  - Sokcho
-tags:
-  - North Korea
-  - Russia
-  - Seoraksan
 ---
 > Welcome to Part 3 of our series on investing in Sokcho. If you missed Part 2, click [here](http://seoulreimeetup.com/korea/sokcho-part2). For Part 1, click [here](http://seoulreimeetup.com/korea/sokcho-part1). The series follows a group of Seoul Real Estate Investing Meetup members’ whirlwind 19-hour day as they traveled to Sokcho to check out the properties of two of our investors and explore a unique Korea-focused real estate buying strategy using jeonse.
 

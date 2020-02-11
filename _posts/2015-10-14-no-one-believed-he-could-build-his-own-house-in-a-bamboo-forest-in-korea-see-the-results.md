@@ -1,22 +1,8 @@
 ---
-id: 8
+layout: post
 title: No one believed he could build his own house in a bamboo forest in Korea. See the results!
 date: 2015-10-14T14:35:30+00:00
 author: Dan Ryu
-excerpt: "<p>One of the best investments you can make as a real estate investor is in strengthening your network. I'm constantly amazed by the ROI (return on investment) I get just from reaching out to people, connecting, and asking to hear their stories. Last night, The Seoul Real Estate Investing Meetup posted on Reddit about our upcoming Saturday Meetup.</p>"
-layout: post
-guid: http://localhost:8888/seoulreimeetup/2015/10/14/no-one-believed-he-could-build-his-own-house-in-a-bamboo-forest-in-korea-see-the-results/
-permalink: /2015/10/14/no-one-believed-he-could-build-his-own-house-in-a-bamboo-forest-in-korea-see-the-results/
-structured_content:
-  - '{"oembed":{},"overlay":true}'
-categories:
-  - Airbnb
-  - Korea
-  - real estate
-  - rehabbing
-tags:
-  - Sean Walker
-  - The Damyang House
 ---
 One of the best investments you can make as a real estate investor is in strengthening your network. I’m constantly amazed by the ROI (return on investment) I get just from reaching out to people, connecting, and asking to hear their stories. Last night, The Seoul Real Estate Investing Meetup posted on Reddit about our upcoming Saturday Meetup. (H/t to Jean-Luc for getting it all set up!)
 

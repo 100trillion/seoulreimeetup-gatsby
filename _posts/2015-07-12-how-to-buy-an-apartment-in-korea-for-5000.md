@@ -1,19 +1,10 @@
-–--
-id: 20
+---
+layout: post
 title: How to buy an apartment in Korea for $5,000
 date: 2015-07-12T07:41:58+00:00
 author: Dan Ryu
 excerpt: "<p>In this article, I want to tell you about a strategy to buy Korean real estate for very little money out-of-pocket. And just so you know, this is not a strategy that I profit from in any way (nor endorse). I'm just sharing knowledge that I learned from another member of the Seoul Real Estate Investing Meetup. As with any investment strategy, make sure you do your own due diligence and are following all local laws. And yes, this strategy can also be used by non-Koreans.</p>"
-layout: post
-guid: http://localhost:8888/seoulreimeetup/2015/07/12/how-to-buy-an-apartment-in-korea-for-5000/
-permalink: /2015/07/12/how-to-buy-an-apartment-in-korea-for-5000/
-categories:
-  - creative financing
-  - jeonse
-  - Korea
-  - weolse
-tags:
-  - traditional financing
+
 ---
 In this article, I want to tell you about a strategy to buy Korean real estate for very little money out-of-pocket. And just so you know, this is not a strategy that I profit from in any way (nor endorse). I’m just sharing knowledge that I learned from another member of the Seoul Real Estate Investing Meetup. As with any investment strategy, make sure you do your own due diligence and are following all local laws. And yes, this strategy can also be used by non-Koreans.
 

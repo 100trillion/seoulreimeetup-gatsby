@@ -1,26 +1,8 @@
 ---
-id: 18
+layout: post
 title: 'Sokcho real estate investing – Part 1: A commercial property in the heart of a shopping district for $3,000'
 date: 2015-08-02T07:12:32+00:00
 author: Dan Ryu
-excerpt: |
-  <p style="margin-left:0px; margin-right:0px">Welcome to Part 1 of our series on investing in Sokcho. The series follows a group of Seoul Real Estate Investing Meetup members' whirlwind 19-hour day as they traveled to Sokcho to check out the properties of two of our investors and explore a unique Korea-focused <a href="http://seoulreimeetup.com/korea/how-to-buy-an-apartment-in-korea-for-5000">real estate buying strategy using jeonse</a>.</p>
-layout: post
-guid: http://localhost:8888/seoulreimeetup/2015/08/02/sokcho-part1/
-permalink: /2015/08/02/sokcho-part1/
-categories:
-  - commercial real estate
-  - creative financing
-  - jeonse
-  - Korea
-  - real estate
-  - Sokcho
-tags:
-  - Gangwon-do
-  - North Korea
-  - Rodeo Drive
-  - Russia
-  - Starbucks
 ---
 > Welcome to Part 1 of our series on investing in Sokcho. The series follows a group of Seoul Real Estate Investing Meetup members’ whirlwind 19-hour day as they traveled to Sokcho to check out the properties of two of our investors and explore a unique Korea-focused [real estate buying strategy using jeonse](http://seoulreimeetup.com/korea/how-to-buy-an-apartment-in-korea-for-5000).
 
