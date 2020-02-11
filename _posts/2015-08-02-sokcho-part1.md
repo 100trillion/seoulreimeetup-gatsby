@@ -14,27 +14,29 @@ We covered a lot of information in one day. Rather than write it all up in one e
 
 Our day started bright and early at 5:30 am. Despite a little drizzle and an unusually long 6-hour drive to Sockho, we were all excited to learn. We would return that night in the rain, giving us a total of 9 hours of driving in a single day. If that sounds crazy, then you haven’t experienced the commitment to succeed of some of our members!<figure style="width: 360px" class="wp-caption alignnone">
 
-![ Leaving Saturday morning during peak season? Expect to see this! ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453796820510-EK35U54ELDRZYI9D8UMD/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">Leaving Saturday morning during peak season? Expect to see this!</figcaption></figure>
+![ Leaving Saturday morning during peak season? Expect to see this! ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453796820510-EK35U54ELDRZYI9D8UMD/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original)
 
 After arriving and a quick lunch at an awesome 6,500 won buffet (with fresh vegetables growing outside the restaurant), we were off to see the first property.<figure style="width: 270px" class="wp-caption alignnone">
 
-![ 6,500 won? Totally worth it! ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453798101009-BTBUU8TTQZHS42ZD8PZV/ke17ZwdGBToddI8pDm48kNoWUkuQ52hbt6HGl2iUBl1Zw-zPPgdn4jUwVcJE1ZvWhcwhEtWJXoshNdA9f1qD7Xj1nVWs2aaTtWBneO2WM-vbvhq25UcxHyKUVxdyq7VDfTcVNkwit4tqF6nfm7adPA/buffet?format=original) <figcaption class="wp-caption-text">6,500 won? Totally worth it!</figcaption></figure>
+![ 6,500 won? Totally worth it! ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453798101009-BTBUU8TTQZHS42ZD8PZV/ke17ZwdGBToddI8pDm48kNoWUkuQ52hbt6HGl2iUBl1Zw-zPPgdn4jUwVcJE1ZvWhcwhEtWJXoshNdA9f1qD7Xj1nVWs2aaTtWBneO2WM-vbvhq25UcxHyKUVxdyq7VDfTcVNkwit4tqF6nfm7adPA/buffet?format=original)
 
 Property #1 is located in the heart of Sokcho’s retail district on Rodeo Drive (the same name as the one in Los Angeles). Rodeo Drive features retails shops from many major brands including Adidas, Puma, and of course Starbucks.
 
 The street seems to be undergoing a transition, with older-looking shops mixed in with some very nice, modern, newly redesigned-looking storefronts – a little like Itaewon. The sidewalks are broad, paved, and pedestrian-friendly. According to one investor, Sokcho’s Rodeo Drive is home to many big brands as the brands know the tourist traffic from across Korea is a great way to raise awareness of their products. Instead, of opening stores across Korea, open a store in a place that everyone visits.<figure style="width: 360px" class="wp-caption alignnone">
 
-![ Rodeo Drive ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453798967800-CERJOPAI3I1BKJVDH5RC/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">Rodeo Drive</figcaption></figure> <figure style="width: 360px" class="wp-caption alignnone">![ Rodeo Drive ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453799081466-BUXDBGEKUHDHAC97UE5U/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original)<figcaption class="wp-caption-text">Rodeo Drive</figcaption></figure>
+![ Rodeo Drive ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453798967800-CERJOPAI3I1BKJVDH5RC/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original)
+
+![ Rodeo Drive ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453799081466-BUXDBGEKUHDHAC97UE5U/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original)
 
 Rodeo Drive is also home to one of Sokcho’s biggest attractions – Jungang Market, a fish market.<figure style="width: 360px" class="wp-caption alignnone">
 
-![ Jungang Market ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453799228162-C2ZY5I803FLU40BRTKDF/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">Jungang Market</figcaption></figure>
+![ Jungang Market ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453799228162-C2ZY5I803FLU40BRTKDF/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original)
 
 As the busiest retail district in Sokcho, Rodeo Drive has a lot of desirable characteristics -consistent foot traffic, an always-busy Starbucks, and a fish market that draws large crowds throughout the day and especially at night.
 
 Additionally, a CGV is being built right behind the main street.<figure style="width: 360px" class="wp-caption alignnone">
 
-![ Site of future CGV ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453799340694-MDCNWAN9VLLKSZQ8ZFZI/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">Site of future CGV</figcaption></figure>
+![ Site of future CGV ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453799340694-MDCNWAN9VLLKSZQ8ZFZI/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original)
 
 Buying a commercial building (a whole building) in this district might seem like a daunting task. But our investors were able to do it with the help of their real estate agent who held this property as a  "pocket listing " – a property that hasn’t been officially listed yet. Their real estate agents called them first, as the investors have a reputation for being able to close on a property.
 
@@ -42,11 +44,11 @@ The building they bought is a two-story property zoned for both residential and 
 
 It’s a connected to Rodeo Drive through a walkway that leads to the main building. With the space zoned for both residential and commercial, there are lots of possibilities for maximizing return on investment. Currently, it’s being used as a residential space, but the consensus seems to be that renovating it into a commercial space would bring a much higher ROI (Return on Investment).<figure style="width: 270px" class="wp-caption alignnone">
 
-![ The walkway that leads to the main building ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453800292452-DOEEM98Q79DYI2MVOONU/ke17ZwdGBToddI8pDm48kNoWUkuQ52hbt6HGl2iUBl1Zw-zPPgdn4jUwVcJE1ZvWhcwhEtWJXoshNdA9f1qD7Xj1nVWs2aaTtWBneO2WM-vbvhq25UcxHyKUVxdyq7VDfTcVNkwit4tqF6nfm7adPA/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">The walkway that leads to the main building</figcaption></figure>
+![ The walkway that leads to the main building ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453800292452-DOEEM98Q79DYI2MVOONU/ke17ZwdGBToddI8pDm48kNoWUkuQ52hbt6HGl2iUBl1Zw-zPPgdn4jUwVcJE1ZvWhcwhEtWJXoshNdA9f1qD7Xj1nVWs2aaTtWBneO2WM-vbvhq25UcxHyKUVxdyq7VDfTcVNkwit4tqF6nfm7adPA/image-asset.jpeg?format=original)
 
 Blink and you’ll miss it!  But this property’s desirability lies in its location – right in the heart of Rodeo Drive.<figure style="width: 360px" class="wp-caption alignnone">
 
-![ Ocean view - rooftop BBQ anyone? ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453800484460-MBZTTSBTRCFMP6HJCDCW/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original) <figcaption class="wp-caption-text">Ocean view – rooftop BBQ anyone?</figcaption></figure>
+![ Ocean view - rooftop BBQ anyone? ](https://images.squarespace-cdn.com/content/v1/568a65ced82d5eb432851580/1453800484460-MBZTTSBTRCFMP6HJCDCW/ke17ZwdGBToddI8pDm48kBOgj54rjDr_Cn6PM_k60KRZw-zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVEKkQYvUWYDGucKKvWZWT9N9L90-KjAI_O_7ekO9cCJxKxn0PwarrxMOBK5uU32Nvo/image-asset.jpeg?format=original)
 
 So how much did our investors pay for this building? Here’s where things get interesting and creative.
 
