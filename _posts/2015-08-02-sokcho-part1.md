@@ -73,5 +73,3 @@ Alright, I look forward to hearing feedback, comments, and questions from you. I
 What do you think? Do you think the investors got a good deal? What would you do with that space? Let me know!
 
 > The Sokcho Real Estate Investing series is not intended to encourage people to invest in Sokcho. Nor do we have any products for sale or investments opportunities to offer. We simply want to help educate our members about potential Korea Real Estate investing strategies through the experiences of some of our members. We welcome all feedback.
-
-_(Banner photo by <a target="_blank" href="https://www.flickr.com/photos/mendhak/4572352828/in/album-72157623637573964/" rel="noopener noreferrer">mendhak</a>, Flickr)_
