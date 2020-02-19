@@ -12,7 +12,7 @@ Okay, now that I’ve gotten that out of the way, let’s start by defining trad
 
 ## Traditional financing
 
-Traditional financing refers to borrowing money from the bank to buy a property.
+Traditional financing refers to borrowing money from the bank to buy properties.
 
 For example, imagine there’s a house you want to buy for $100,000. However, you only have $20,000. You might be able to go to the bank and ask for a loan for the other $80,000.
 
@@ -105,5 +105,3 @@ Here are some factors you’ll need to employ this strategy:
 This is just one creative investing strategy that I learned about by attending our events. As I mentioned before, I’ve never used this strategy, and you should do your own due diligence to ensure you’re complying with all the local laws and also consult with a real estate agent to hear more about the risks involved.
 
 But as an investor, I love hearing about creative ways to do deals. Not only are you acquiring properties that can give you great returns, but you’re also helping to solve problems – you’re helping an owner sell a property the owner no longer wants, and you’re able to provide jeonse housing for tenants who want it.
-
-Check out the [Part 1 of the _Sokcho real estate investing series_](/blog/sokcho-part1) to learn more about this unique strategy.
